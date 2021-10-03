@@ -1,4 +1,4 @@
-## Oiii! Eu sou o zuko90slol
+## Olá! Eu sou o zuko90slol
  <div>
 <div align="center">
   <a href="https://github.com/zuko90slol">
